@@ -1,5 +1,5 @@
-ASDSDasd
+Primer dia de capacitaciòn
 
-ASDASDASD
+Repasando los conflictos
 
-aSDASdasd
+Trabajo pps
